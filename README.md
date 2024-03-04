@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning **yoloV8, ui/ux design**
 
-- 👨‍💻 All of my projects are available at [www.aboubacryba.sn](www.aboubacryba.sn)
+- 👨‍💻 All of my projects are available at [www.aboubacryba.sn]([www.aboubacryba.sn]([https://www.linkedin.com](https://www.linkedin.com/in/aboubacryba/)))
 
 - 📝 I regularly write articles on [www.sentuto.com](www.sentuto.com)
 
@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **bacrtutoriel@gmail.com**
 
-- 📄 Know about my experiences [www.aboubacryba.sn/experience](www.aboubacryba.sn/experience)
+- 📄 Know about my experiences [www.aboubacryba.sn/experience]([www.aboubacryba.sn/experience](https://www.linkedin.com/in/aboubacryba/))
 
 - ⚡ Fun fact **I'm very very very funnyyyyyyyyyy!!!!!!!!**
 
